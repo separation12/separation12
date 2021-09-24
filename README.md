@@ -2,7 +2,7 @@
 - 👀 I’m interested in phycology,history and many light physics
 - 🌱 I’m currently learning ..
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me you can massage me in instagram @ren_separation_12
+- 📫 How to reach me? you can massage me in instagram @ren_separation_12
 
 <!---
 separation12/separation12 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
